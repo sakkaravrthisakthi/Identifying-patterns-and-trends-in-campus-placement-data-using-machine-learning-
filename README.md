@@ -4,7 +4,7 @@ Mechine learning
 link for demo video 1
 
 
-https://drive.google.com/file/d/14Q5zwVayDtQKUTmuBwJQzlZnECf5P0Xp/view?usp=share_link
+https://drive.google.com/file/d/1POMA8IKSvOZvtlAuyWk8JIWCNjOwyPin/view?usp=share_link
 
 
 link for demo video 2
